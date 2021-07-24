@@ -4,8 +4,11 @@
 - ✌  Fun Fact: I Love to paint and sketch
 
 ###CONTACT ME WITH-
+
 https://www.linkedin.com/in/shivya-garg-b92758200?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BAfOYyi86QjG6aCrPgHWsBA%3D%3D
+
 shivyagarg3@gmail.com
+
 https://www.instagram.com/shivya_garg_3
 
 
