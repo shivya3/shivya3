@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shivya3- SHIVYA GARG
-- 👀 I’m interested in coding and web developement
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning web devlopement and python and many more....
 - ✌  Fun Fact: I Love to paint and sketch
 
