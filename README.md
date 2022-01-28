@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shivya3- SHIVYA GARG
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning web devlopement and python and many more....
+- 🌱 I’m currently learning artificial intelligence and python and many more....
 - ✌  Fun Fact: I Love to paint and sketch
 
 ###CONTACT ME WITH-
