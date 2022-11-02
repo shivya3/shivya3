@@ -7,4 +7,5 @@ I am pursuing Bachelor's of technology in Artificial Intelligence.
 - 🌱 I’m currently learning various tools used by Data Scientist
 - ✉️  You can contact me at shivyagarg3@gmail.com, https://www.linkedin.com/in/shivya-garg-b92758200/
 - 🤝  I'm open to collaborating on backend projects with requirements of languages as C,C++,python and MySQL and various industry tools like Machine Learning, Deep     Learning. 
--->
+
+
